@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ezzedine01, aka ezzeddine; Souheil, Suhail, Souheyl
-- 👀 I’m interested in ... Math Physics (all of it, anything, from subparticle to cosmic scales) Philosophy
+- 👀 I’m interested in ... Math Physics (all of it, anything, from subparticles to cosmic scales) Philosophy
 - 🌱 I’m currently learning ... too many things
 - 💞️ I’m looking to collaborate on ... everything
 - 📫 How to reach me ... stay tuned!
